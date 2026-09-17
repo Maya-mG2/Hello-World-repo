@@ -1,1 +1,1 @@
-My name is Maya - I'm a soph at UM, majoring in comp sci and math
+My name is Maya - I'm a soph at UM, majoring in comp sci and math. im 18
